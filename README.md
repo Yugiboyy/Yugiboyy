@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Yugiboyy
 - 👀 I’m interested in a lot of things
 - 🌱 I’m currently learning a lof of things
-- 💞️ I’m looking to collaborate on a lot of things
+-  I’m looking to collaborate on a lot of things
 - 📫 How to reach me, call me up on discord Yugi Muto#1181
 
 <!---
